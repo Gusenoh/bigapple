@@ -9,3 +9,4 @@ contact or payment/appointment system.
 I am stuck with the dormain name which i have to pay for.
 It has expire and i am not willing to pay anymore.
 But i am grateful for all i did learn.
+Moses Dan had taking over bigapple
